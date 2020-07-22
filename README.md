@@ -5,3 +5,5 @@ If you want ask Marxie about anything, her links are
 - [Instagram](https://www.instagram.com/marxiemoons/): @marxiemoons
 - [Twitter](https://twitter.com/marxiemoons): @marxiemoons
 - [Youtube](https://www.youtube.com/channel/UChaAOt18AS5j4_RlagKdiYQ) marxie moons
+
+All fanart belongs to the owners of the fanart and their names are (or should be) displayed on the image OR be displayed below the image.
